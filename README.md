@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @JayashriSB
-- 👀 I’m interested in web development
 - 📫 How to reach me jayashribarhate05@gmail.com or 7820862427
 
 <!---
