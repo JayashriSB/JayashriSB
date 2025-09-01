@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JayashriSB
-- 📫 How to reach me jayashribarhate05@gmail.com or 7820862427
+- 📫 How to reach me jayashribarhate2025@gmail.com or 7820862427
 
 <!---
 JayashriSB/JayashriSB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
